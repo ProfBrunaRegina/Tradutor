@@ -2,4 +2,4 @@
 
 Equipe: Bruna e Marília
 
-Bruna Regina Leite de Moraes
+Professora: Bruna Regina Leite de Moraes
